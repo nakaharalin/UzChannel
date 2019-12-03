@@ -11,3 +11,8 @@ Hololive中国区vtb夜雾的粉丝群内在讨论关于Overidea旗下VTB谢拉�
 ## 开端
 随后恼羞成怒的UZ，使用账号UzChannel(原名YYUT搬运)发布了一条动态，并随之在论坛NGA引起讨论
 ![开端](事情开端/UZ第一个动态.png)
+
+## 事态发展
+### 在动态发布后不久论坛NGA开贴对此事进行讨论
+帖子链接：https://ngabbs.com/read.php?tid=19495107&_ff=-60204499
+![帖子](发展/nga帖子.png)
